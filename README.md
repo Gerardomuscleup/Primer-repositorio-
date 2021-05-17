@@ -1,2 +1,2 @@
-Hola este es mi primer repositorio, mi nombre es Gerardo y estudio 
-en la facultad de ciencias.
+First reposirory, hago calistenia, me gusta ñengo flow, los corridos tumbados y las miches 😏
+
